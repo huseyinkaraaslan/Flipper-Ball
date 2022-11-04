@@ -1,1 +1,1 @@
-Gameplay Video : https://youtu.be/ctZrJfdnvlw
+Gameplay : https://youtu.be/ctZrJfdnvlw
